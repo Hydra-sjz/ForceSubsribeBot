@@ -1,4 +1,4 @@
-# ғᴏʀᴄᴇ sᴜʙsʀɪʙᴇ ʙᴏᴛ
+# ғᴏʀᴄᴇ sᴜʙsʀɪʙᴇ ʙᴏᴛ SJZ
 
  [Fᴏʀᴄᴇ sᴜʙsʀɪʙᴇ Bᴏᴛ](https://t.me/ForceSubscriber_RoBot)
 > ɢɪvᴇ ᴀ sᴛᴀʀ ʙᴇғᴏʀᴇ ᴋᴀᴍɢɪɴɢ  ғᴜᴍᴋᴇʀ
